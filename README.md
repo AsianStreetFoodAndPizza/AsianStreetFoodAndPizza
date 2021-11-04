@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AsianStreetFoodAndPizza
 - 👀 I’m interested in YOU
-- 🌱 I’m currently learning about You
+- 🌱 I’m currently learning about YOU
 - 💞️ I’m looking to collaborate in YOU
 - 📫 How to reach my DM'S
 
